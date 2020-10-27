@@ -1,1 +1,0 @@
-# pancamurniprima.github.io
